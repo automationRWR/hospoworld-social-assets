@@ -17,3 +17,17 @@ Channel: hospoworld_ (Instagram). Times are Australia/Sydney (AEDT, +11:00), def
 | 27 | How to Prepare for Hospitality Trends That Will Shape 2027 | posts/HW_BLOG_row27_prepare-for-hospitality-trends-that-will-shape-2027_post.jpg | Thu 10 Dec 2026 14:30 AEDT | Menus, technology and fit outs can be copied.<br><br>A skilled, engaged and stable team cannot. How to prepare for 2027.<br><br>New on the blog. Link in bio.<br><br>#Hospoworld #HospitalityTrends #HospitalityLeadership #HospitalityRecruitment #HospitalityIndustry | reels/HW_BLOG_row27_prepare-for-hospitality-trends-that-will-shape-2027_reel_v2.mp4 | Fri 11 Dec 2026 14:30 AEDT | What will shape hospitality in 2027?<br><br>People, flexibility, technology and employer brand. Prepare your team early.<br><br>Link in bio for the read.<br><br>#Hospoworld #HospitalityTrends #HospitalityIndustry #HospitalityLeadership #Hospitality2027 |
 | 28 | Year-End Recruitment Analysis: What Worked and What Didn't | posts/HW_BLOG_row28_year-end-recruitment-analysis-what-worked-and-what-didnt_post.jpg | Thu 17 Dec 2026 14:30 AEDT | What worked in your hiring this year? What didn't?<br><br>Look at retention, not just speed. Choose two or three improvements, not twenty.<br><br>New on the blog. Link in bio.<br><br>#Hospoworld #HospitalityRecruitment #HiringTips #HospitalityLeadership #EmployeeRetention | reels/HW_BLOG_row28_year-end-recruitment-analysis-what-worked-and-what-didnt_reel_v2.mp4 | Fri 18 Dec 2026 14:30 AEDT | A short, honest hiring review now saves time next year.<br><br>Review every hire, check your sources and decide what to change.<br><br>Comment BLOG and we will send it over.<br><br>#Hospoworld #HospitalityRecruitment #HiringTips #HospitalityIndustry #HospitalityLeadership |
 | 29 | Why Some Hospitality Roles Take Longer to Fill Than Others | posts/HW_BLOG_row29_why-some-hospitality-roles-take-longer-to-fill_post.jpg | Wed 23 Dec 2026 14:30 AEDT | One role fills in a fortnight. Another sits open for months.<br><br>The difference is rarely luck. See the factors that explain it.<br><br>New on the blog. Link in bio.<br><br>#Hospoworld #HospitalityRecruitment #HiringTips #HospitalityLeadership #HospitalityJobs | reels/HW_BLOG_row29_why-some-hospitality-roles-take-longer-to-fill_reel_v2.mp4 | Wed 23 Dec 2026 17:30 AEDT | Why do some hospitality roles take longer to fill?<br><br>Scarce skills, location, hours, the offer and a slow process all play a part.<br><br>Link in bio for the full read.<br><br>#Hospoworld #HospitalityRecruitment #HiringTips #HospitalityIndustry #HospitalityLeadership |
+
+## Labour Day (NZ) single post
+
+- File: labour-day/HW_LABOUR_DAY_2026_post.jpg
+- Scheduled: Mon 26 Oct 2026 09:00 AEDT
+- Alt text: Green circle cluster above the words Happy Labour Day, NZ.
+
+Happy Labour Day, NZ.
+
+Public holidays are busy ones in hospitality. Thank you to everyone on shift today.
+
+Enjoy the day, wherever you are.
+
+#Hospoworld #LabourDay #HospitalityJobs #HospoLife #NewZealand
