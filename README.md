@@ -1,5 +1,7 @@
 # Hospoworld Refer a Mate
 
+> **Brand guidelines:** see [BRAND-GUIDELINES.md](BRAND-GUIDELINES.md) (refreshed Nov 2026 from the live websites). The same file sits in all four brand social-assets repos and in Notion (RWR Group Brand Memory).
+
 Instagram media for the Hospoworld Refer a Mate campaign (Oct to Nov 2026, Feb to Mar 2027). Hosted here so Buffer can pull it.
 
 ## Mental Health Awareness Week 2026
